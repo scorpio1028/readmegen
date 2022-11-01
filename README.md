@@ -26,3 +26,15 @@
         ## License
         Licensed under the [![License: MIT](https://img.shields.io/badge/License-MIT-yellow.svg)](https://opensource.org/licenses/MIT)
         
+        ##COLLABORATIONS 
+        https://www.youtube.com/watch?v=TlB_eWDSMt4&t=1s
+        https://www.youtube.com/watch?v=9ZHzhHiBwqc
+        https://www.youtube.com/watch?v=bnHWlMHp9Gw
+        https://www.youtube.com/watch?v=Pp9IG-prQjE&t=422s
+        
+        
+
+
+
+
+        
